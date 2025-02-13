@@ -1,7 +1,7 @@
 # FFH4X APK (Free Fire Max Game) - Grátis Oficial Atualizado para Android/IOS 2025
 | Nome | [FFH4X](https://apksil.com/ffh4x/)|
 |--------------|-------|
-|![ffh4x-apk-download](https://github.com/user-attachments/assets/53b54ae9-dcbc-45b8-b578-c5e9bcf33abf)|![Screenshot 2025-02-12 140151](https://github.com/user-attachments/assets/2bbea846-b9a9-4664-9d7a-12ad78efc1be)</a> |
+|![ffh4x-apk-download](https://github.com/user-attachments/assets/53b54ae9-dcbc-45b8-b578-c5e9bcf33abf)|<a href="https://apksil.com/ffh4x/">![Screenshot 2025-02-12 140151](https://github.com/user-attachments/assets/2bbea846-b9a9-4664-9d7a-12ad78efc1be)</a> |
 | Versão | v137 |
 | Atualizar | 2025 |
 | Developer | FFH4X INC |
